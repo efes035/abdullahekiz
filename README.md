@@ -1,0 +1,2 @@
+# abdullahekiz
+Ödev-1
